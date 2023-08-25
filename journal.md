@@ -6,3 +6,6 @@ August 23/23  i'm learning a lot of things in CodeHs
 
 
 Agust 24/23 my progess in CodeHS was good 
+
+
+Agust 24/24 my progess in CodeHs was good but it's to hard
