@@ -12,3 +12,6 @@ Agust 24/24 my progess in CodeHs was good but it's to hard
 
 
 Agust 28/24 i like it but it's a little  difficult 
+
+
+Agust 29/23  my progess in CodeHs was good 
