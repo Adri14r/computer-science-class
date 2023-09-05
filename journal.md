@@ -22,3 +22,5 @@ Agustr 30/23 my progress in CodeHs was good
 Agust 31/23 it's to hard
 
 9/1/23 it's to harddddd
+
+9/5/23 my progress in CodeHs was good i'm doing Super Karel
