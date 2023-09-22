@@ -43,3 +43,5 @@ Agust 31/23 it's to hard
 
 9/21/23 my progress in codehs was awesome
 
+9/22/24 my progress in codehs was good but sometimes it's to hard
+
