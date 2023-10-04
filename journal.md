@@ -47,6 +47,7 @@ Agust 31/23 it's to hard
 9/29/23 my progress in codehs was good 
 10/2/23 my progress in codehas was good 
 10/3/23 my progress in codehs was awesome 
+10/4/23 my pro9gres was good 
 
 
 
