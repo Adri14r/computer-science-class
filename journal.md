@@ -56,3 +56,6 @@ Agust 31/23 it's to hard
 9/22/23 my progress in codehs was good but sometimes it's to hard
 9/27/23  my progress in codehs was good im doing Comments 
 
+
+10 /6/23 it was amazing im doing zumiiii
+
