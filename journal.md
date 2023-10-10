@@ -58,4 +58,12 @@ Agust 31/23 it's to hard
 
 
 10 /6/23 it was amazing im doing zumiiii
+10/10/23 it was awesome zummi is good 
+
+
+
+
+
+
+
 
