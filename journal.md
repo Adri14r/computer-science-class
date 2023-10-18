@@ -61,8 +61,7 @@ Agust 31/23 it's to hard
 10/10/23 it was awesome zummi is good 
 10/12/23 it was awesome im doing zummiii
 10/16/23 it was awesome im doing codehs
-
-
+10/18/23 it was good im doing codehs
 
 
 
